@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @SreeragS2003
+- I'm currently a B-Tech CS student from College of Engineering Trivandrum
